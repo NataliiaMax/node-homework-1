@@ -3,7 +3,7 @@ https://monosnap.com/file/itQws5I9FXhZmVlqdsTyTpGR9jlmtV
 https://monosnap.com/file/Wiz3R3ultije6rEKsc4FH2yy3li0tn
 
 Отримуємо контакт по id
-
+https://monosnap.com/file/MYKKzYcAYx4lCF3UsIjXf6pYENJOHx
 
 Додаємо контакт
 https://monosnap.com/file/CAPNU6uYtnKTZt3HQdsoUeWjfGWyAZ
